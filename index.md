@@ -15,4 +15,4 @@ In addition to research activities, I have a passion for environmental education
 
 Hoover, J.J., Boysen, K.A., Beard, J.A., Smith, H.E. 2011. Assessing the risk of entrainment by cutterhead dredges to juvenile lake sturgeon (_Acipenser fulvescens_) and juvenile pallid sturgeon (_Scaphirhynchus albus_). _Journal of Applied Ichthyology_. 
 
-[image](https://scontent.fmia1-2.fna.fbcdn.net/v/t1.0-9/560953_3448503373330_574019486_n.jpg?_nc_cat=0&oh=9a9046e6a7653759fad480814511424c&oe=5B402512)
+[image](https://scontent.fmia1-2.fna.fbcdn.net/v/t1.0-9/560953_3448503373330_574019486_n.jpg?_nc_cat=0&oh=9a9046e6a7653759fad480814511424c&oe=5B402512) [image](https://scontent.fmia1-2.fna.fbcdn.net/v/t1.0-9/317913_3420266067415_241772819_n.jpg?_nc_cat=0&oh=db3c0fc69c5d1e42d7cac41297b7f8ff&oe=5B3655C5) 
